@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Victor Muthomi
 - 👀 I’m interested in ...Web development, ...Blockchain and Crypto ,...trading 
 - 🌱 I’m currently learning ...Blockchain with Edx and Youtube
-- 💞️ I’m looking to collaborate on ...proects startups and any freelance assistance you need
+- 💞️ I’m looking to collaborate on ...projects , startups and any freelance assistance you need
 - 📫 How to reach me ...+254795306275
 - 😄 Pronouns: ...HE/HIM
 - ⚡ Fun fact: ...I can solve a rubicks cube under 3 minutes , 
