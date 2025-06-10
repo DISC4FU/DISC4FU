@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Victor Muthomi
-- 👀 I’m interested in ...Web development, ...Blockchain and Crypto ,...trading 
+- 👀 I’m interested in ...Web development, ...Blockchain and Crypto ,cloud computing...trading 
 - 🌱 I’m currently learning ...Blockchain with Edx and Youtube
 - 💞️ I’m looking to collaborate on ...projects , startups and any freelance assistance you need
 - 📫 How to reach me ...+254795306275
