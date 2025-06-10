@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...projects , startups and any freelance assistance you need
 - 📫 How to reach me ...+254795306275
 - 😄 Pronouns: ...HE/HIM
-- ⚡ Fun fact: ...I can solve a rubicks cube under 3 minutes , 
+- ⚡ Fun fact: ...I can solve a rubicks cube under 3 minutes , also hit me up for chess.com @WHOSKING 
 
 <!---
 DISC4FU/DISC4FU is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
